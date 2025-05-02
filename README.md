@@ -17,16 +17,18 @@ HyperSKU isn’t just another supplier – it's the **ultimate dropshipping powe
 - **Real-time store sync** lets you fulfill **bulk orders with one click**.
 - **NO monthly fees** – you only pay when you fulfill orders.
 
+👉 [Sign Up Free on HyperSKU](https://www.hypersku.com/campaign/optimize-dropshipping/?ref=affinco)
+
 ---
 
 ## 🔥 Exclusive HyperSKU Coupons & Promo Codes (May 2025)
 
 | 💸 Deal                  | 🎁 What You Get                                                                 | 🔗 Action        |
 |--------------------------|----------------------------------------------------------------------------------|------------------|
-| **FREE STARTER ACCOUNT** | Connect up to 10 stores at ZERO cost + unlimited product imports                | [CLAIM NOW](#)   |
-| **MULTI-STORE DISCOUNT** | Add your 11th store for just $10/month (standard is $29+)                      | [GET DEAL](#)    |
-| **FREE EXPRESS DELIVERY**| Ultra-fast 7–10 day shipping to major regions at no extra cost                 | [ACTIVATE](#)    |
-| **UNLIMITED PROCESSING** | No cap on monthly orders – scale to the moon!                                  | [GRAB OFFER](#)  |
+| **FREE STARTER ACCOUNT** | Connect up to 10 stores at ZERO cost + unlimited product imports                | [CLAIM NOW](https://www.hypersku.com/campaign/optimize-dropshipping/?ref=affinco) |
+| **MULTI-STORE DISCOUNT** | Add your 11th store for just $10/month (standard is $29+)                      | [GET DEAL](https://www.hypersku.com/campaign/optimize-dropshipping/?ref=affinco)  |
+| **FREE EXPRESS DELIVERY**| Ultra-fast 7–10 day shipping to major regions at no extra cost                 | [ACTIVATE](https://www.hypersku.com/campaign/optimize-dropshipping/?ref=affinco)  |
+| **UNLIMITED PROCESSING** | No cap on monthly orders – scale to the moon!                                  | [GRAB OFFER](https://www.hypersku.com/campaign/optimize-dropshipping/?ref=affinco) |
 
 ---
 
@@ -46,10 +48,10 @@ AliExpress is old news. Here’s why **smart dropshippers** are switching:
 
 ## 🎯 How To Redeem Your HyperSKU Coupon (Takes Just 2 Minutes!)
 
-1. Click any coupon link above
-2. Sign up for a **free HyperSKU account**
-3. Connect your store(s)
-4. Start importing products
+1. Click [this coupon link](https://www.hypersku.com/campaign/optimize-dropshipping/?ref=affinco) (opens the official HyperSKU website)  
+2. Sign up for a **free HyperSKU account**  
+3. Connect your store(s)  
+4. Start importing products  
 5. Enjoy your activated discounts!
 
 ---
@@ -92,6 +94,6 @@ HyperSKU gives you:
 - ✅ Lightning-fast shipping  
 - ✅ $0 monthly fees  
 
-🎟️ **Grab your HyperSKU coupon now** and watch your profits and customer reviews **skyrocket**!
+🎟️ **[Grab your HyperSKU coupon now](https://www.hypersku.com/campaign/optimize-dropshipping/?ref=affinco)** and watch your profits and customer reviews **skyrocket**!
 
 > **Note:** These exclusive offers won’t last forever. Claim them before they disappear like fake tracking numbers!
