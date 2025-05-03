@@ -91,3 +91,5 @@ Remember: these HyperSKU discounts won't stick around forever. Lock in your savi
 🎟️ **[Grab your HyperSKU coupon now](https://www.hypersku.com/campaign/optimize-dropshipping/?ref=affinco)** and watch your profits and customer reviews **skyrocket**!
 
 > **Note:** These exclusive offers won’t last forever. Claim them before they disappear like fake tracking numbers!
+
+[![Claim Your Free Account Now](https://res.cloudinary.com/dav29ivcg/image/upload/v1746248021/CLAIM_YOUR_FREE_ACCOUNT_NOW_faevn1.png)](https://www.hypersku.com/campaign/optimize-dropshipping/?ref=affinco)
